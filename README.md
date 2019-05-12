@@ -13,7 +13,11 @@ Trash blues band from Minsk, Belarus
 
 <https://vk.com/whiskeyjamband>
 
+<https://whiskeyjamband.bandcamp.com>
+
 ## Pork Trumper album (2019)
 <https://open.spotify.com/album/39QSFNR7NU2V7g2f4fLZmP>
 
 <https://www.youtube.com/playlist?list=PLvT4NJ9Qv_ooK4Z0hmEO_Key57nM7XxuO>
+
+<https://whiskeyjamband.bandcamp.com/album/pork-trumpet>
